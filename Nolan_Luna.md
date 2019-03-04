@@ -22,9 +22,9 @@ Recibe el Arte Impreso en Lienzo / Tela por Envío a Tu País.
 -------------------------------------
 BENEFICIOS
 -------------------------------------
-1) Adorno Interior. Un espacio decorado con arte es más agradable a la vista, se ve mejor, y ocupa ese espacio vacío, llenando de colorido con formas o figuras.
-2) Se Conseva en el Tiempo. El arte impreso en lienzo y papel, tienen una gran durabilidad, con garantía de 100 años en adelante.
-3) Retorno de la inversión (garantía de ingreso futuro). Puedes revender la obra a un precio igual o mayor, y recuperar el retorno de la inversión y generar ganancias. Si el artista o el arte en si, adquieren mayor renombre y reconocimiento; la obra puede valer aún mucho más.
+a) Adorno Interior. Un espacio decorado con arte es más agradable a la vista, se ve mejor, y ocupa ese espacio vacío, llenando de colorido con formas o figuras.
+b) Se Conseva en el Tiempo. El arte impreso en lienzo y papel, tienen una gran durabilidad, con garantía de 100 años en adelante.
+c) Retorno de la inversión (garantía de ingreso futuro). Puedes revender la obra a un precio igual o mayor, y recuperar el retorno de la inversión y generar ganancias. Si el artista o el arte en si, adquieren mayor renombre y reconocimiento; la obra puede valer aún mucho más.
 -------------------------------------
 FORMAS DE PAGO
 -------------------------------------
