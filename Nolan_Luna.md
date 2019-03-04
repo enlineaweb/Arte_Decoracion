@@ -1,5 +1,9 @@
 Arte Decoración de Interiores
 -------------------------------------
+Galería de Arte Web
+-------------------------------------
+https://nolanluna.wixsite.com/arte
+-------------------------------------
 _ Compra en Internet Todos y Cualquier Cantidad de Arte en Archivo Digital Gratis por Donación / Tamaños 11" / 15" / 20" / y Recíbelo vía Email / Imprímelo en Lienzo / Tela / Papel / en tu País.
 -------------------------------------
 _ Archivo Digital Tamaño 25" por USD$5.
@@ -45,12 +49,6 @@ c) Envío / Money Gram / Wester Union / Correo Postal
 d) Bitcoin / Ethereum / Litecoin / a través de Internet / y Cajero Bitcoin / Sólo Arte en Archivo Digital.
 -------------------------------------
 e) Efectivo y Depósito en República Dominicana.
--------------------------------------
-Galería de Arte Web
--------------------------------------
-https://nolanluna.wixsite.com/arte
--------------------------------------
-http://www.nolangaleria.ga
 -------------------------------------
 Formulario Arte Impreso en Lienzo / 20" / 30" / 40" / 50"
 -------------------------------------
