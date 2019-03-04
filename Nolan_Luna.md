@@ -12,6 +12,14 @@ _ Compra Arte Desde Tamaño 20" / por USD$50 / Impreso en Linezo / Tela / y Rec�
 -------------------------------------
 _ Contactar para más información.
 -------------------------------------
+Formulario Arte Impreso en Lienzo / 20" / 30" / 40" / 50"
+-------------------------------------
+https://goo.gl/forms/QLdsmGAnI7LiK5a72
+-------------------------------------
+Formulario Archivo Digital / Gratis / 11" / 15" / 20" / Desde $5 / 30" / 40" / 50"
+-------------------------------------
+https://goo.gl/forms/NBcswmE8OisZ96Vf1
+-------------------------------------
 CARACTERÍSTICA
 -------------------------------------
 _ Arte Archivo original digital en alta resolución / HD / PDF / Listo para Imprimir.
@@ -49,12 +57,4 @@ c) Envío / Money Gram / Wester Union / Correo Postal
 d) Bitcoin / Ethereum / Litecoin / a través de Internet / y Cajero Bitcoin / Sólo Arte en Archivo Digital.
 -------------------------------------
 e) Efectivo y Depósito en República Dominicana.
--------------------------------------
-Formulario Arte Impreso en Lienzo / 20" / 30" / 40" / 50"
--------------------------------------
-https://goo.gl/forms/QLdsmGAnI7LiK5a72
--------------------------------------
-Formulario Archivo Digital / Gratis / 11" / 15" / 20" / Desde $5 / 30" / 40" / 50"
--------------------------------------
-https://goo.gl/forms/NBcswmE8OisZ96Vf1
 -------------------------------------
