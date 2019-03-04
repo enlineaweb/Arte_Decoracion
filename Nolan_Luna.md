@@ -1,14 +1,19 @@
 Arte Decoración de Interiores
 -------------------------------------
 _ Compra en Internet Todos y Cualquier Cantidad de Arte en Archivo Digital Gratis por Donación / Tamaños 11" / 15" / 20" / y Recíbelo vía Email / Imprímelo en Lienzo / Tela / Papel / en tu País.
+-------------------------------------
 _ Archivo Digital Tamaño 25" por USD$5.
+-------------------------------------
 _ Compra Arte Desde Tamaño 20" / por USD$50 / Impreso en Linezo / Tela / y Recíbelo en Tu País.
+-------------------------------------
 _ Contactar para más información.
 -------------------------------------
 CARACTERÍSTICA
 -------------------------------------
 _ Arte Archivo original digital en alta resolución / HD / PDF / Listo para Imprimir.
+-------------------------------------
 _ Arte Impreso en Lienzo / Tela / en alta resolución / HD
+-------------------------------------
 _ A Color y Mocromo
 -------------------------------------
 DECORACIÓN DE
@@ -18,6 +23,7 @@ Hogar (Casa, Apartamento), Negocio (Local Comercial, Tienda), Restaurante (Cafet
 ENTREGA
 -------------------------------------
 _ Recibe el Archivo Digital vía Email / Imprímelo en Lienzo / Tela / Papel / en tu País.
+-------------------------------------
 _ Recibe el Arte Impreso en Lienzo / Tela por Envío a Tu País.
 -------------------------------------
 BENEFICIOS
